@@ -1,8 +1,15 @@
 ## Hi there 👋
-## My name is Claralyn 😜 but you will want me "Clara" 😍 
+## My name is Claralyn 😜 but you will want call me "Clara" 😍
+Venezuelan
+
+![VenezuelaFlagGIF](https://github.com/user-attachments/assets/331999bf-4d76-4e1c-ab0d-05da0d29ac0d)
 
 
-I´m a publicist by profesision... and programmer in construction
+
+I´m a publicist by profesision... programmer-developer in construction and excited to continue learning
+
+![HappyWinGIF](https://github.com/user-attachments/assets/ba464215-6baf-4d73-87be-afe5f59e4a1e)
+ 
 ## 🛠 Skills
 
 <br>
